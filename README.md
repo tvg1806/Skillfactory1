@@ -1,2 +1,0 @@
-# Skillfactory1
-uchebaTV
